@@ -3,10 +3,8 @@
 Sempre fiquei me perguntando como seria a saudade da família e dos amigos caso eu morasse fora. É o tipo de coisa que cada um reage de um jeito. É um assunto recorrente entre amigos e familiares que moravam (ou ainda moram) fora, cada um à sua maneira.
 Quando surgiu (finalmente?!) a oportunidade para eu morar fora, fiquei curioso de como seria isso para mim. Nunca me considerei muito **apegado** às pessoas próximas a mim, no sentido de que achava que conseguiria me adaptar tranquilamente estando longe. Mas também também sempre gostei bastante dos momentos em família. Tanto os almoços de domingo quanto, especialmente, a época do Natal em que conseguíamos juntar vários familiares ao mesmo tempo.
 
----
 Pausa para um breve contexto caso você esteja lendo isso e não está por dentro do que rolou nesse ano: 
 Morei quase a vida toda em Belo Horizonte/MG, cidade em que nasci, e em Abril desse ano (2021) recebi uma proposta para vir para o Reino Unido trabalhar. Pretendo contar mais dessa história no futuro, mas um resumão é: Cheguei em Londres com a família no final de Agosto, ficamos **11 dias** em quarentena num quarto de hotel, depois 2 meses numa residência temporária paga pela empresa enquanto olhávamos onde morar, e agora estou há 2 meses na casa que alugamos.
----
 
 Acredito que, em grande parte, a saída do Brasil ter sido após mais de 1 ano dentro da pandemia acabou servindo para amenizar o impacto da distância. Com exceção da família nuclear que mora em BH, quase não tivemos encontros com familiares nos 18 meses que antecederam nossa partida. Gostando ou não, foi uma realidade que eu estava mais acostumado. Além disso, tem também que a frequência dos encontros com a minha família materna já havia diminuído bastante desde que minha avó faleceu em Julho de 2014.
 
@@ -30,5 +28,6 @@ Pra fechar, não poderia faltar mais uma menção à musica né? Foi um misto de
 
 Que todos tenhamos um 2022 abençoado!
 
-Um abraço à distância, Israel
-31/12/2021
+Um abraço, à distância, Israel
+
+31/12/2021	
