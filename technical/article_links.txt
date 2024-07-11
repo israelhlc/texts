@@ -1,0 +1,5 @@
+2023-10-24 - https://hackernoon.com/how-to-safely-ship-changes-to-production
+2023-11-20 - https://dzone.com/articles/how-to-use-shadow-testing-to-reduce-the-risk-of-pr
+2023-11-22 - https://dev.to/israel_hlc/how-to-set-up-efficient-code-reviews-and-improve-your-teams-codebase-423p
+2023-12-20 - https://dzone.com/articles/how-to-make-legacy-code-more-testable
+2024-02-26 - https://israelhlc.hashnode.dev/migrating-data-at-scale
